@@ -1,4 +1,4 @@
-
+steal the brainrot base smart Script offers the most advanced steal the brainrot base Script, with auto-farm and fly. Perfect for dominating any
 
 
 
